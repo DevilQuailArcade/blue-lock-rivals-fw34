@@ -1,4 +1,4 @@
-
+ultimate blue lock rivals Script offers the most advanced blue lock rivals Script, with god mode and esp. Perfect for dominating any match.
 
 
 
